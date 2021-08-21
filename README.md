@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Nadhira Meizahra.
+- 👀 I’m interested in Human Resources, Digital Marketing, Writing and working with new people.
+- 🌱 I’m currently learning Japanese Studies and Human Resources, but I'm constantly learning new knowledge and improving my skills.
+- 📫 You can reach me on LinkedIn (Nadhira Meizahra).
